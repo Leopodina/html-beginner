@@ -5,8 +5,8 @@ am leopodina
 
 the third year student at st joseph college of engineering and technology
 
-i believe in working hard and  being unique are tips that i always do:simple_smile:
+i believe in working hard and  being unique are tips that i always do:simple-smile:
 
 God makes things more easier:pray:
 
-@github/leonardk1 how do you see my update brother
+@github/leonardk1 how do you see my update brother:simple-smile:
